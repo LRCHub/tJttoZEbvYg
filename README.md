@@ -1,0 +1,66 @@
+# Post Malone & The Weeknd – One Right Now
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:01.62] Na-na-na-na, na-na
+[00:03.42] Na-na-na-na, oh no
+[00:05.80] Yeah, yeah
+[00:10.80] 
+[00:08.10] Said you love me, but I don't care
+[00:11.86] That I broke my hand on the same wall
+[00:14.56] That you told me that he fucked you on (oh!)
+[00:18.54] You think it's so easy fucking with my feelings
+[00:24.21] I got one coming over and one right now (uh)
+[00:28.27] One right now
+[00:32.52] (One right now, one right now, oh-oh-oh)
+[00:36.82] I got one coming over and one right now
+[00:56.32] 
+[00:39.65] Said you want to have my babies
+[00:41.84] I fucked you so good, you should pay me
+[00:44.51] Don't call me "baby" when you did me so wrong
+[00:48.45] (When you did me so wrong)
+[01:01.45] 
+[00:49.48] But I got over what you did already
+[00:52.43] Body for body, so petty
+[00:54.76] How many of your friends fit in my Rolls? (Can you fit in my Rolls?)
+[00:59.35] Bought you a new face, you should call me "Dad"
+[01:02.89] Baby, Hermès, but you dropped the bag
+[01:04.93] Baby, truth is, maybe one's just not enough
+[01:26.43] 
+[01:07.86] You say you love me, but I don't care
+[01:11.47] That I broke my hand on the same wall
+[01:13.55] That you told me that he fucked you on (that he fucked you on)
+[01:18.16] You think it's so easy fucking with my feelings (feelings)
+[01:23.60] I got one coming over and one right now (uh)
+[01:27.47] One right now (yeah, yeah, yeah)
+[01:31.03] (One right now, one right now, oh yeah)
+[01:35.80] I got one coming over and one right now (yeah, yeah, yeah)
+[01:41.57] (One right now, one right now, oh-oh-oh)
+[01:45.95] I got one coming over and one right now
+[02:05.45] 
+[01:49.72] You're a stain in my legacy
+[01:51.50] We can't be friends, can't be family (oh)
+[01:54.05] You probably fuck all my enemies (ooh)
+[01:56.51] I can't let you be next to me
+[01:58.97] Oh, you belong to the world now
+[02:01.51] So just leave me alone now
+[02:04.26] We're not in touch no more
+[02:17.26] 
+[02:06.38] You say you love me, but I don't care (no, I don't care)
+[02:10.79] That I broke my hand on the same wall
+[02:13.07] That you told me that he fucked you on (oh)
+[02:17.20] You think it's so easy fucking with my feelings (feelings)
+[02:22.63] I got one coming over and one right now
+[02:26.71] One right now (oh yeah, oh yeah, oh yeah)
+[02:32.71] (Fucking with my, fucking with my feelings)
+[02:35.58] I got one coming over and one right now
+[02:38.91] (Ooh-yeah, oh-yeah, oh-yeah)
+[02:42.55] (One right now)
+[02:43.95] I got one coming over and one right now
+[03:03.45] 
+[02:58.45] (Hey!)
+[03:00.15] (One right now, one right now)
+[03:05.18] (Ooh-yeah)
+[03:06.22] I got one coming over and one right now
+```
